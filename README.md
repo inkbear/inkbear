@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @inkbear
+- 👀 I’m interested in origami, portrait drawing, writing, home renovations, art, and coding
+- 🌱 I’m currently learning blockchain
+- 💞️ I’m looking to collaborate on writing
+- 📫 How to reach me paul@inkbear.com
+- 🍀 May the road rise to meet your feet. 
